@@ -1,0 +1,1 @@
+# fricke_06_exercises
